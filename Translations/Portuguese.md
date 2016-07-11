@@ -1,6 +1,6 @@
 ### Dear Mom, Dad, Uncle, Auntie: Black Lives Matter to Us, Too
 
-This is the Portuguese Brazilian version of the [open letter](https://medium.com/@lettersforblacklives/7ca577d59f4c#.sap555poh) created by Letters for Black Lives, an ongoing project for people to create and translate resources on anti-Blackness for their communities in solidarity with #BlackLivesMatter. The letter was written and translated collaboratively by hundreds of people who want to have honest conversations with their parents about an issue important to them. For more information, visit [about.lettersforblacklives.com](http://about.lettersforblacklives.com).
+This is the Brazilian Portuguese version of the [open letter](https://medium.com/@lettersforblacklives/7ca577d59f4c#.sap555poh) created by Letters for Black Lives, an ongoing project for people to create and translate resources on anti-Blackness for their communities in solidarity with #BlackLivesMatter. The letter was written and translated collaboratively by hundreds of people who want to have honest conversations with their parents about an issue important to them. For more information, visit [about.lettersforblacklives.com](http://about.lettersforblacklives.com).
 
 #### Queridos mãe, pai, tio, tia, vô, vó,
 
