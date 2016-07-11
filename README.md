@@ -17,7 +17,7 @@ Our hope with this letter is to make it easier for people to start difficult con
 
 ## About the Project
 
-Letters for Black Lives is a set of crowdsourced, multilingual, and culturally-aware resources aimed at creating a space for open and honest conversations about racial justice, police violence, and anti-Blackness in our families and communities. 
+[Letters for Black Lives](http://lettersforblacklives.com) is a set of crowdsourced, multilingual, and culturally-aware resources aimed at creating a space for open and honest conversations about racial justice, police violence, and anti-Blackness in our families and communities. 
 
 We began as a group of Asian Americans and Canadians writing an intergenerational letter to voice our concerns and support for the Black community. We have since grown to include other immigrant groups and communities of color. Our goal is to listen, support, and amplify the message of Black Lives Matter within our communities. 
 
