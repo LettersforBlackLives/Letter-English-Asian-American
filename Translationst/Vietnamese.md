@@ -40,3 +40,35 @@ Các con và các cháu
 
 ### Translators
 
+- Betty Ta
+
+- Binh Thuan Nguyen
+
+- Maria Do
+
+- The Family of Nguyen Van Hue
+
+- Linda Lam
+
+- James Huynh
+
+- Đoàn Cao Hương Thảo & Võ Minh Quân
+
+- Maria Than
+
+- Diana Nguyen
+
+- Grace Phuong Thao Tran
+
+- Minh Tuyen Mai
+
+- Kim Nguyen Tran
+
+- Mari Nguyen
+
+- Thao Le
+
+- Chi Nguyen
+
+- Duyen Bui
+
