@@ -13,3 +13,13 @@ We wanted to write a letter — not a think piece or an explainer or a histo
 Even beyond that, we encourage each individual to adapt this letter to their own needs to best reach their families. Every family has a different experience, and this is merely a resource for you to use. **That’s why this letter, and its translations, are published with a [CC0 Public Domain license](https://creativecommons.org/choose/zero/)**–anyone can use any part of it, though we’d appreciate a linkback. 
 
 Our hope with this letter is to make it easier for people to start difficult conversations, build empathy and understanding, and move us forward to real change.
+
+
+# About the Project
+## An Open Letter Project on Anti-Blackness
+
+Letters for Black Lives is a set of crowdsourced, multilingual, and culturally-aware resources aimed at creating a space for open and honest conversations about racial justice, police violence, and anti-Blackness in our families and communities. 
+
+We began as a group of Asian Americans and Canadians writing an intergenerational letter to voice our concerns and support for the Black community. We have since grown to include other immigrant groups and communities of color. Our goal is to listen, support, and amplify the message of Black Lives Matter within our communities. 
+
+We encourage people from all communities to adapt and build off of these resources.  
