@@ -15,8 +15,7 @@ Even beyond that, we encourage each individual to adapt this letter to their own
 Our hope with this letter is to make it easier for people to start difficult conversations, build empathy and understanding, and move us forward to real change.
 
 
-# About the Project
-## An Open Letter Project on Anti-Blackness
+## About the Project
 
 Letters for Black Lives is a set of crowdsourced, multilingual, and culturally-aware resources aimed at creating a space for open and honest conversations about racial justice, police violence, and anti-Blackness in our families and communities. 
 
