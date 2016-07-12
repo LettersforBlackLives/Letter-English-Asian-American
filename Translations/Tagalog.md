@@ -16,7 +16,7 @@ Gusto ko po sanang ibahagi sa inyo ang nakikita’t nararamdaman ko.
 
 Totoong nakakaranas po tayo ng diskriminasyon sa bansang ito dahil sa pagiging Asyano natin. Minsan binabastos tayo dahil lang sa ating pananalita. Minsan hindi tayo nakakaangat sa trabaho dahil sa tingin nila, hindi natin kaya ang mamuno. May mga kapwa po tayong Asyano na pinaghihinalaan agad na terorista. Pero sa kadalasan, hindi tayo itinuturing na mapapanganib na mga kriminal. Kapag naglalakad po tayo sa kalsada, hindi takot sa atin ang mga taong nakakasalubong natin, at hindi binabaril ng mga pulis ang mga anak o magulang natin dahil lang sa ating lahi.
 
-Pero hindi ito masasabi ng mga kaibigan kong itim. Marami sa mga ninuno nila ang dinala sa Amerika para gawing alipin nang labag sa kanilang kalooban. Sa loob ng ilang daantaon, sila, pati na ang kanilang mga pamayanan, pamilya, at mismong katawan ay ginamit at inabuso para lang yumaman ang iba. Kahit na tapos na ang panahon ng pang-aalipin, walang institusyong tumulong sa kanila para itaguyod at panimulan ang kanilang bagong buhay. Matagal pong pinagbawal sa kanila ang bumoto at ang magmay-ari ng lupa. Hanggang ngayon, patuloy pa rin silang nakakaranas ng karahasan.
+Pero hindi ito masasabi ng mga kaibigan kong itim. Marami sa mga ninuno nila ang dinala sa Amerika para gawing alipin nang labag sa kanilang kalooban. Sa loob ng ilang daantaon, sila, pati na ang kanilang mga pamayanan, pamilya at mismong katawan ay ginamit at inabuso para lang yumaman ang iba. Kahit na tapos na ang panahon ng pang-aalipin, walang institusyong tumulong sa kanila para itaguyod at panimulan ang kanilang bagong buhay. Matagal pong pinagbawal sa kanila ang bumoto at ang magmay-ari ng lupa. Hanggang ngayon, patuloy pa rin silang nakakaranas ng karahasan.
 
 Ang pakikipaglaban ng mga itim para sa kanilang karapatan ay nagbigay-daan sa mga pagkakataon sa pag-unlad, hindi lamang para sa kanilang sarili kundi para sa atin na rin. Sila’y nabugbog, nakulong at napatay pa habang pinagtatanggol ang mga karapatang tinatamasa na rin nating mga Asyanong Amerikano ngayon. Malaki ang utang na loob natin sa kanila. Kasama nila tayo sa paglaban sa iisang sistemang ‘di makatarungan at naglalayon na paglabanin tayo sa isa’t isa.
 
@@ -30,7 +30,7 @@ Pero sana po ay pag-isipan ninyo ito: ang “American Dream” ay hindi lamang p
 
 Nagmamahal at umaasa,
 
-Ang inyong mga anak, mga pamangkin, at mga apo
+Ang inyong mga anak, mga pamangkin at mga apo
 
 ### Translators
 
