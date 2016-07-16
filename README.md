@@ -27,22 +27,21 @@ We encourage people from all communities to adapt and build off of these resourc
 
 ##The Letters##
 
-* Letters for Black Lives: http://www.lettersforblacklives.com
-* Repository on GitHub: https://github.com/LettersforBlackLives
+* [Letters for Black Lives](http://www.lettersforblacklives.com) (on Medium)
+* [Repository](https://github.com/LettersforBlackLives) on GitHub 
 
 ##Get Involved##
 
-* Record a Reading: http://readings.lettersforblacklives.com
-* Help us Organize: http://join.lettersforblacklives.com
+* [Record a Reading](http://readings.lettersforblacklives.com) 
+* [Help us Organize](http://join.lettersforblacklives.com)
 * [Contribute a Translation](https://docs.google.com/document/d/1qwon6Q-h3YC2n_vZGKIVxZxEhXG8ZQah4IVCMQzGaUk/edit)
 * [Start a Letter](https://docs.google.com/document/d/1jJwrgAk923hTSHVNkqPo610FMBNrecWz04NCK55VMJ4/preview)
-* Follow us on Twitter: http://www.twitter.com/lettersforbl
-
+* [Follow us on Twitter](http://www.twitter.com/lettersforbl)
 
 ##Learn More##
 
-* Press Kit: http://press.lettersforblacklives.com
-* Join our Newsletter: https://tinyletter.com/letters-for-black-lives
+* [Press Kit](http://press.lettersforblacklives.com)
+* [Join our Newsletter](https://tinyletter.com/letters-for-black-lives)
 
 ##Letters##
 * [Asian American (English)](https://lettersforblacklives.com/7ca577d59f4c)
