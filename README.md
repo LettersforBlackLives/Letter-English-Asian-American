@@ -56,7 +56,7 @@ https://tinyletter.com/letters-for-black-lives
 ##Letters##
 * [Asian American (English)](https://lettersforblacklives.com/7ca577d59f4c)
 * [African immigrants](https://lettersforblacklives.com/e713224282d2)
-* [Asian Canadian (English)](https://lettersforblacklives.com/da04d08f2c2e) and [ (French)](https://lettersforblacklives.com/c82990294317)
+* Asian Canadian ([English](https://lettersforblacklives.com/da04d08f2c2e) and [ French](https://lettersforblacklives.com/c82990294317))
 * [German](https://lettersforblacklives.com/8fa37d38ea13)
 * [Latinxs](https://lettersforblacklives.com/72bd91ca43ca)
 
