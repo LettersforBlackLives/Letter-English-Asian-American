@@ -34,6 +34,8 @@ We encourage people from all communities to adapt and build off of these resourc
 
 * Record a Reading: http://readings.lettersforblacklives.com
 * Help us Organize: http://join.lettersforblacklives.com
+* [Contribute a Translation](https://docs.google.com/document/d/1qwon6Q-h3YC2n_vZGKIVxZxEhXG8ZQah4IVCMQzGaUk/edit)
+* [Start a Letter](https://docs.google.com/document/d/1jJwrgAk923hTSHVNkqPo610FMBNrecWz04NCK55VMJ4/preview)
 * Follow us on Twitter: http://www.twitter.com/lettersforbl
 
 
