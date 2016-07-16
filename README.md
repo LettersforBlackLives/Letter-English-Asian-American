@@ -53,3 +53,33 @@ http://press.lettersforblacklives.com
 Join our Newsletter
 https://tinyletter.com/letters-for-black-lives
 
+##Published Translations##
+[African immigrants](https://lettersforblacklives.com/e713224282d2)
+[American (English)](https://lettersforblacklives.com/7ca577d59f4c)
+[Arabic](https://lettersforblacklives.com/392460e31329)
+[Bahasa Indonesia](https://lettersforblacklives.com/364d93e62822)
+[Bahasa Malaysia](https://lettersforblacklives.com/a62decf7704b)
+[Bengali](https://lettersforblacklives.com/1bc0dfd460e2)
+[Brazilian](https://lettersforblacklives.com/d610375ea8d0)
+[Canadian (English)](https://lettersforblacklives.com/da04d08f2c2e)
+[Canadian (French)](https://lettersforblacklives.com/c82990294317)
+[Chinese (Simplified)](https://lettersforblacklives.com/edbf828433c3)
+[Chinese (Traditional)](https://lettersforblacklives.com/6770eed17e9)
+[Hindi](https://lettersforblacklives.com/9c8c221aa3b2)
+[Hmong (Green dialect)](https://lettersforblacklives.com/d7f837c5776e)
+[Hmong (White dialect)](https://lettersforblacklives.com/effb8f362537)
+[Farsi](https://lettersforblacklives.com/69cf2acf4c52)
+[French](https://lettersforblacklives.com/7c89bb2e724e)
+[German](https://lettersforblacklives.com/8fa37d38ea13)
+[Japanese](https://lettersforblacklives.com/3432c44c312a)
+[Khmer](https://lettersforblacklives.com/a546a8769a99)
+[Korean](https://lettersforblacklives.com/cc7bac2283a5)
+[Latinxs](https://lettersforblacklives.com/72bd91ca43ca)
+[Spanish](https://lettersforblacklives.com/6a451b1a6099)
+[Tagalog](https://lettersforblacklives.com/e52a185d1488)
+[Tamil](https://lettersforblacklives.com/1bd896a02fe6)
+[Telugu](https://lettersforblacklives.com/cea3cb627acc)
+[Thai](https://lettersforblacklives.com/ad7d82837d02)
+[Urdu](https://lettersforblacklives.com/9c7edc7baeb3)
+[Vietnamese](https://lettersforblacklives.com/4a3f1e2c7535)
+
